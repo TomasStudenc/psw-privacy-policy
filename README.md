@@ -24,4 +24,4 @@ All stored data can be permanently removed by clearing application data or unins
 
 Contact:
 If you have any questions regarding this Privacy Policy, please contact:
-your@email.com
+tomas.studenc5846@gmail.com
